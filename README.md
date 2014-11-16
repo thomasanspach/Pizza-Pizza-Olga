@@ -16,3 +16,7 @@ Pizza-Pizza-Olga
 
 * @ charlekwallin :octopus: :cat2:
   * does dominoes have octocat?
+
+* @ floraola :smiling_imp: :alien:
+  * Chicken Supreme
+  * Veggie Lover's
